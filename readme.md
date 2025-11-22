@@ -9,4 +9,4 @@ The question **with my life** is unknown ❤️🌟🏳️‍⚧️.
 ## Check out my website
 I've built a website where you can find my about me, my creativeness and my sparkle all in **ONE PLACE** can you believe it??1!!! 
 
-Check it out at [https://madds.lol](https://maddz.lol).
+Check it out at [https://madds.lol](https://madds.lol).
